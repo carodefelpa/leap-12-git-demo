@@ -1,4 +1,4 @@
-# who us Khaleesi?
+# who is Khaleesi?
 
 
 ghfhg
